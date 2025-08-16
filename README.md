@@ -33,7 +33,7 @@
 
 ## 🌐 Onde me encontrar
 - [LinkedIn](linkedin.com/in/valdo-henrique-a6b61621a)
-- [Instagram]([https://instagram.com](https://www.instagram.com/henriquebjjf/?hl=en))  
+- [Instagram](https://www.instagram.com/henriquebjjf/?hl=en)
 
 ---
 
